@@ -4,7 +4,7 @@
 
 *Une fricassé de poulet
 *3 cuillere de souffre
-*50cl de lait demi-écremé
+*510cl de lait demi-écremé
 *28 poutres en acier inoxidé
 *1L de peinture rose
 
