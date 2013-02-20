@@ -15,7 +15,7 @@
 *-Passer le coeur écorché dans le mixeur
 *-Mélanger le tout dans le verre
 *-Ajouter la tulipe au dessus du liquide obtenu pour un effet des plus efficace
-*Common Baby let's party
+*Common Barbie let's party
 
 
 CHECK CHECK YOUR BODY YEAHHH
