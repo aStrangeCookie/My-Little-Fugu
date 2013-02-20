@@ -3,7 +3,7 @@
 ## Ingrédients :
 
 *-Un coeur de vache (bien frais, préférer les nouveaux-nés).
-*-Une coupe de Dom Perignon.
+*-30cl de Dom Perignon.
 *-Un quart de tulipe de préférence noire.
 
 
