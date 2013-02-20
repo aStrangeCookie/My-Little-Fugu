@@ -10,4 +10,4 @@
 
 ## Etapes :
 
-C'est très simple tu prends ta tête tu l'a mets dans le pot de peinture tu attends que tu t'étouffes presque, tu l'as sorts et tu mange la fricassé de poulet. Voila tu t'es fais entuber car tu as dut acheter 28 poutres pour rien ;).
+C'est très simple tu schtroumpfrends ta tête tu l'a mets dans le pot de peinture tu attends que tu t'étouffes presque, tu l'as sorts et tu mange la fricassé de poulet. Voila tu t'es fais entuber car tu as dut acheter 28 poutres pour rien ;).
